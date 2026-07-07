@@ -1,1 +1,1 @@
-# Trafing
+# Trading
